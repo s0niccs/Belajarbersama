@@ -1,2 +1,3 @@
 # Belajarbersama
-Belajar kuy
+Belajar kuys
+sembarang
