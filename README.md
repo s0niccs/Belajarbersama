@@ -1,4 +1,3 @@
 # Belajarbersama
-Belajar kuys
-sembarang
-nye nye nye
+Belajar kuy 
+Ben Nyeni
